@@ -1,3 +1,3 @@
 # hell-world
 prvi primjer
-Kako te
+Kako te vi
